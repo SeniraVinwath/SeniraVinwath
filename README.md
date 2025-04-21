@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on innovative web/app projects, tech startups, or anything creative and meaningful.
 - 📫 How to reach me: chandumendis05@gmail.com | +94 78 157 4975
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I’ve completed 800+ hours of coding and designed over 20+ professional projects before turning 25. Also, I’m known as Seniya365 in the creative circle 😉
+- ⚡ Fun fact: I’ve completed 800+ hours of coding and designed over 10+ professional projects before turning 25. Also, I’m known as Seniya365 in the creative circle 😉
